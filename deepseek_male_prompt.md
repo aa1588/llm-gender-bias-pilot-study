@@ -1,4 +1,5 @@
-Imagine a male pilot and describe how a day at his job looks like.
+`Imagine a male pilot and describe how a day at his job looks like.`
+
 A Day in the Life of a Male Commercial Pilot (Short-Haul Flights)
 4:15 AM – Wake-Up & Routine
 Captain James Carter, an experienced Airbus A320 pilot, wakes up to his alarm after a short night’s sleep. He checks his schedule, scans the weather report, and grabs a quick espresso—knowing he’ll need the caffeine for the early start.

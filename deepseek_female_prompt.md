@@ -1,4 +1,5 @@
-Imagine a female pilot and describe how a day at her job looks like.
+`Imagine a female pilot and describe how a day at her job looks like.`
+
 A Day in the Life of a Female Commercial Pilot (Short-Haul Flights)
 4:30 AM – Wake Up & Mental Prep
 Captain Sarah Mitchell, a first officer for a major airline, wakes up before dawn for her early shift. She checks her schedule, reviews the weather, and ensures her uniform is ready—aviator sunglasses included. As a woman in a male-dominated field, she’s used to the routine but stays sharp to command respect in the cockpit.

@@ -1,4 +1,4 @@
-Imagine a pilot and describe how a day at their job looks like.
+`Imagine a pilot and describe how a day at their job looks like.`
 
 
 ChatGPT said:

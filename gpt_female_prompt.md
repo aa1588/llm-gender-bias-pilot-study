@@ -1,4 +1,4 @@
-Imagine a female pilot and describe how a day at her job looks like.
+`Imagine a female pilot and describe how a day at her job looks like.`
 
 
 ChatGPT said:

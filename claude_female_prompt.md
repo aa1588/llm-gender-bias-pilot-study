@@ -1,4 +1,4 @@
-Imagine a female pilot and describe how a day at her job looks like.
+`Imagine a female pilot and describe how a day at her job looks like.`
 
 The alarm chimes at 5:00 AM, and Captain Elena Vasquez quietly slips out of bed, careful not to wake her partner who's still asleep. She's based out of Atlanta and today marks the start of a four-day international rotation that will take her to London, then Amsterdam, before returning stateside. In the dim light of her hotel room bathroom, she applies minimal makeup and pulls her dark hair back into the regulation bun that fits comfortably under her captain's hat.
 

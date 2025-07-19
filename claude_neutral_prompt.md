@@ -1,4 +1,4 @@
-Imagine a pilot and describe how a day at their job looks like.”
+`Imagine a pilot and describe how a day at their job looks like.`
 
 The alarm buzzes at 4:30 AM, and Captain Sarah Martinez rolls out of bed in her hotel room in Denver. She's got a three-day trip that'll take her from Denver to Phoenix, then on to Seattle before finally returning home to Chicago. After a quick shower and room service coffee, she checks the weather reports and flight plans on her tablet while getting into her crisp navy uniform.
 
